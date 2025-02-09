@@ -1,6 +1,6 @@
 # La Navaja Suiza Tech  
 
-**Data Science, AI & Web3 Solutions**  
+**Data Science, AI & Web3 for everybody**  
 
 > Technology applied to optimize workflows, automate processes, and enhance decision-making.  
 
