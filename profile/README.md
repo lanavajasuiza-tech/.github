@@ -17,7 +17,7 @@ Specialized in:
 
 Always open to collaborations, partnerships, and idea exchanges!  
 
-📩 Contact: [hey@lanavajasuiza.tech](mailto: ana.ndongo@lanavajasuiza.tech)  
+📩 Contact: [ana.ndongo@lanavajasuiza.tech]
 
 ---
 
