@@ -1,4 +1,4 @@
-# La Navaja Suiza Tech  
+# lanavajasuiza.tech
 
 **Data Science, AI & Web3 for everybody**  
 
